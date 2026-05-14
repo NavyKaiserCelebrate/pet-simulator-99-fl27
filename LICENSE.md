@@ -1,4 +1,4 @@
-
+Get ahead in adopt me with adopt me Scripts top, featuring aimbot and teleport. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
